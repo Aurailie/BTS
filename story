@@ -1,0 +1,1 @@
+i am aurailie bakshi born 2nd june 1998. i auditioned for becoming an idol in 2012. i debuted in a band called bts. i spent a lot of time learing choreography.
